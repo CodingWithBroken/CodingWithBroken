@@ -1,5 +1,5 @@
 ###  dm [ShAdOw#7777](https://discordapp.com/users/736573119866732605) on discord for any coding help.
-###  [SpartaMusic](https://discord.bots.gg/bots/826806417570136084) his one of the public bot.
+###  [SpartaMusic](https://discord.bots.gg/bots/826806417570136084) is his one of the public bot. [CLickHere](https://discord.com/oauth2/authorize?client_id=826806417570136084&permissions=8&scope=bot) to add it to your server.
 ###  ![Stats](https://user-images.githubusercontent.com/73932795/113502250-aac2a900-9548-11eb-822e-12bbdea38731.png)
 
 <!--
