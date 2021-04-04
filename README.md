@@ -1,4 +1,4 @@
-### Hi there 👋
+###  ShAdOw#7777 dm this guy on discord for any coding help.
 
 <!--
 **CodingWithBroken/CodingWithBroken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
