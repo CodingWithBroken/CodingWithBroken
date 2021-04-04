@@ -1,4 +1,4 @@
-###  ShAdOw#7777 dm this guy on discord for any coding help.
+###  [ShAdOw#7777](https://discord.bots.gg/profile/736573119866732605) dm this guy on discord for any coding help.
 
 <!--
 **CodingWithBroken/CodingWithBroken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
