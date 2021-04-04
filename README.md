@@ -1,4 +1,6 @@
-###  [ShAdOw#7777](https://discordapp.com/users/736573119866732605) dm this guy on discord for any coding help.
+###  dm [ShAdOw#7777](https://discordapp.com/users/736573119866732605) on discord for any coding help.
+###  [SpartaMusic](https://discord.bots.gg/bots/826806417570136084) his one of the public bot.
+###  ![Stats](https://user-images.githubusercontent.com/73932795/113502250-aac2a900-9548-11eb-822e-12bbdea38731.png)
 
 <!--
 **CodingWithBroken/CodingWithBroken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
